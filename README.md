@@ -1,1 +1,1 @@
-# OSsunNO's GitHub 🫠
+# OSsunNO's GitHub
